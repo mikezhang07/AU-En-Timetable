@@ -13,6 +13,9 @@ Thursday (10:05 AM ~ 11:50 AM) Conversation 蘇淑卿, (15:15 ~ 17:00) British L
 
 Friday (10:05 AM ~ 11:50 AM) English Listenning Trainning 劉俊興
 
+
+
+
 Grade 1 (First Semester): 
 
 Monday (10:05 AM ~ 11:50 AM) Composition Class 何雯蓉, (13:20 ~ 15:05) Computer Applications and Computational Thinking 邱致中 , (15:15 ~ 17:00) Children and Teenage Literature 蘇一菁
